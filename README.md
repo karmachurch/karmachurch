@@ -1,6 +1,3 @@
-![heat](https://files.catbox.moe/5ny5lk.png) ![serph](https://files.catbox.moe/3lfbpf.png) ![argilla](https://files.catbox.moe/5835fv.png) ![gale](https://files.catbox.moe/wxhg73.png) ![cielo](https://files.catbox.moe/s18i0f.png)
-
-
 ![ashe](https://files.catbox.moe/2bkbwc.png)
 
 - ashe or heat she/he 18yo
