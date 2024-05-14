@@ -1,4 +1,4 @@
-- ashe or heat she/he 18yo
+- ashe or heat she/he adult
 - w2i, frequently offtab/people watching
 - not the most social person but feel free to chat with me
 - i could not care less if you touched my pixels just sit w me goddamnit
