@@ -1,4 +1,5 @@
-- ashe or heat she/he adult
+- ashe or heat she/he adult i am going to kill you
 - w2i, frequently offtab/people watching
 - not the most social person but feel free to chat with me
 - i could not care less if you touched my pixels just sit w me goddamnit
+- no dni i hide if youre a freak or i dont like you
