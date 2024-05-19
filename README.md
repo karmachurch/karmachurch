@@ -1,4 +1,3 @@
 - ashe or heat she/he adult i am going to kill you
 - smt, portal, typology, 2000s media [& more](https://rentry.co/embryon)
-- w2i, frequently offtab. not the most social person but i love to chat
-- no dni i hide if youre a freak or i dont like you
+- no dni aside from the obvious (e.g., proship) i hide if youre a freak or i dont like you
